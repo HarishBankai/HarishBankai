@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 About Me<br><br>I am a Electronics and Computer Engineering student at  looking for internship opportunities. I love analysing data and building real-world projects.<br><br>🎓 B.Tech in Electronics and Computer Engineering (2024-2028)<br>💻 Data Structures & Algorithms, Data Science and Analytics<br>🎯 2026 Goals: Master DSA and Data Science and Analytics.<br><br>🔗 Connect with me<br>https://www.linkedin.com/in/harish-ambalgikar-399932252/ 
+🚀 About Me<br><br>I am a Electronics and Computer Engineering student at  looking for internship opportunities. I love analyzing data and building real-world projects.<br><br>🎓 B.Tech in Electronics and Computer Engineering (2024-2028)<br>💻 Data Structures & Algorithms, Data Science and Analytics<br>🎯 2026 Goals: Master DSA and Data Science and Analytics.<br><br>🔗 Connect with me<br>https://www.linkedin.com/in/harish-ambalgikar-399932252/ 
 
 
 ## 🌐 Socials:
